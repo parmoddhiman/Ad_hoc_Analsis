@@ -1,3 +1,6 @@
+Domain : Consumer Goods
+
+Function : Excecutive Management
 
 𝗣𝗿𝗼𝗷𝗲𝗰𝘁 𝗢𝘃𝗲𝗿𝘃𝗶𝗲𝘄:
 
